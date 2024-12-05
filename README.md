@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @m0sspaw
+- 👀 I’m interested in trying to make games! :3
+- 🌱 I’m currently learning art skills
+- 😄 Pronouns: He/Him/His/Himselff, It/Its/Itself, Xe/Xem/Xyr/Xemself, Nym/Nymph/Nymphs/Nymphself
+- ⚡ Fun fact: I can crochet :)
